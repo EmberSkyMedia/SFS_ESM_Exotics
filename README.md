@@ -11,3 +11,5 @@ Upcoming Items (so far, always open to new ideas)
 3. Nuclear Drive
 
 If you post videos using my mod-pack please tag my youtube channel @PicoSpace (https://www.youtube.com/channel/UCgPjBqQ1IptrZai4oLVZrXA/) so I can check them out!
+
+[**_Be sure to subscribe to Pico Space Industries YouTube channel which is sponsoring this pack! It is REQUIRED that you mention PicoSpace Industries in your videos and link in the description to PicoSpace YT if you use these items in your own YouTube videos_**](https://www.youtube.com/channel/UCgPjBqQ1IptrZai4oLVZrXA/?sub_confirmation=1)
